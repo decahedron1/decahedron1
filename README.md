@@ -1,1 +1,1 @@
-[**Open to work.** 📭](mailto:carson@pyke.io)
+[**Open to work** (remote) 📭](mailto:carson@pyke.io)
